@@ -1,1 +1,1 @@
-Автор: @kea777
+Author: [@kea777](https://github.com/kea777)
